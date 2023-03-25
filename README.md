@@ -1,0 +1,2 @@
+# guru
+I'm studying 
